@@ -1,0 +1,16 @@
+# Conclusion/Summary💁🏻‍♂️
+- Great week to managing self and my performance is increasing than last week (Very very)
+- Buying things for happiness LOL
+- More self-care but not good enough
+- Starting note taking daily and focus on obsidian using
+- Starting founding myself
+- More lovely to listing songs
+- More focusing than before
+- Bad decision in sometimes but not worse than before, Need to improve
+- Some time emotions damaged me :< Need to fix
+- Using GitHub more frequency
+- Start learning about C programming and retrieve about old programming memories
+- More honest to myself
+- Starting Investment learning
+- More positive thinking
+- Usually headache in this week
